@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @x-540
+- 👀 I’m interested in Gane dev, Minecraft mods and Processing 4.
+- 🌱 I’m currently learning Minecraft modding.
+- 💞️ I’m looking to collaborate on nothing rn. Sorry!
+- 📫 How to reach me: through discord, I'm x_540.
